@@ -1,1 +1,1 @@
-God is in control
+Rushhhhh
